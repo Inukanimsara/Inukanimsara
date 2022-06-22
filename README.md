@@ -4,12 +4,14 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
+### TheroX-SMG
+🌀🕊️Blacknico-X🏴‍☠️| wє αrє αnσnчmσus🥷 wє αrє lєgíσn🎩wє dσ nσt fσrgívє💠 wє dσ nσt fσrgєt. 🤍 ــہہـــــــــــــــــــــ٨ـ🖤♥️A L O N E💔⚡TheroX-SMG
+
 <!---
-Inukanimsara/Inukanimsara is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+
 ---
 <p align="center">
-<img src="https://i.ibb.co/cCKHQzB/204244-adapted-landscape-1280x1280.jpg" alt="nz" width="350"/>
+<img src="https://i.ibb.co/cCKHQzB/204244-adapted-landscape-1280x1280.jpg"alt="nz" width="350"/>
 </p>
 
 ## Dark Angel :)
