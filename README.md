@@ -9,7 +9,7 @@ Inukanimsara/Inukanimsara is a ✨ special ✨ repository because its `README.md
 You can click the Preview link to take a look at your changes.
 ---
 <p align="center">
-<img src="https://telegra.ph/file/f3b2f9e862e1352d4fd94.jpg" alt="nz" width="350"/>
+<img src="https://i.ibb.co/cCKHQzB/204244-adapted-landscape-1280x1280.jpg" alt="nz" width="350"/>
 </p>
 
 ## Dark Angel :)
